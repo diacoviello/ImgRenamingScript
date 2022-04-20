@@ -1,0 +1,1 @@
+"He who sings, prays twice. He who codes dies infinitely."
